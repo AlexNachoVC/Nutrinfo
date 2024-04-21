@@ -2,4 +2,4 @@
 
 Inicio
 
-No tengo internet:(
+Hace bastante calor
