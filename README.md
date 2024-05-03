@@ -6,4 +6,4 @@ Hace bastante calor
 
 :)
 
-Mañana igual tengo examen
+Ya casi acaba el bloque y le doy con todo a la progra !!! :)
