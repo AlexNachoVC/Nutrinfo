@@ -3,4 +3,4 @@ NutrInfo
 NutriInfo
 Nutr-I-nfo
 
-Borre el script 
+voy a entrenar
