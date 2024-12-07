@@ -1,5 +1,3 @@
 # Nutrinfo
 
 hola
-
-vidio
